@@ -2,15 +2,19 @@
 
 
 The time is finally here to run the draft, don't get emotional:
+
 ![Alt Text](https://media.giphy.com/media/hHvqwYeAsUOOs/giphy.gif)
 
 But don't get too excited either:
+
 ![Alt Text](https://media.giphy.com/media/vZ3IYG8uDUxY4/giphy.gif?cid=ecf05e47kce3javhx888ohqy8x19n0kmc2452ogq46pq73bg&rid=giphy.gif&ct=g)
 
 While we are all winners:
+
 ![Alt Text](https://media.giphy.com/media/9hqsyNVlf0DOU/giphy.gif?cid=ecf05e4712xkl8myvlx6g71oijkwaion03cwzlg51sb2uxi2&rid=giphy.gif&ct=g)
 
 Sadly only one winner will emerge from the sea of lost souls:
+
 ![Alt Text](https://media.giphy.com/media/3oEdv2NNoFaujmHV84/giphy.gif?cid=ecf05e476nt13vl07asg2djqtlgfz0yi0ppzy7s64m0xgbne&rid=giphy.gif&ct=g)
 
 Everyone picks their favorite Nic Cage movie.  Draft order is random (seeded for repeatability for those who wish to re-run the draft) but odds are influenced by the movie you choose.  Three factors influence the odds:
